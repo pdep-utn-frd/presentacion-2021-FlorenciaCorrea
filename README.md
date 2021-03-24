@@ -4,7 +4,7 @@
 - Numero de legajo: 11737
 -  Tengo 23 años.
 -  Vivo en Garin
--  Practique por un par de años Muay Thai y me subi solo una vez al ring.
--  Me gustan muchisimos los animales, quise estudiar  estudiar para ser veterinaria pero no pude.
+-  Practique Muay Thai por un tiempo pero solo me subi una vez al ring.
+-  Me gustan muchisimos los animales, quise estudiar para ser veterinaria pero no pude.
 -  Tengo cuatro perras y dos gatos.
 -  Me gustan mucho ir a recitales y soy muy fan de foo fighters, los fui a ver al Estadio Unico de La Plata y a Velez.
